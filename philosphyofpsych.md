@@ -65,3 +65,6 @@ Dr Ghaemi
 Dr Aftwab
 
 
+Digital Psychiatry
+https://www.digitalpsych.org/about
+
