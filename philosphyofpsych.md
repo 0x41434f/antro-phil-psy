@@ -1,3 +1,10 @@
+https://www.upstate.edu/psychiatry/education/continuous-education/center-philosophy-psychology-psychiatry.php
+
+https://www.reddit.com/r/Psychiatry/comments/1q50ae4/any_strong_philosophy_x_psychiatry_departments/
+
+(https://fiit-heidelberg.de/en/fiit/thomas-fuchs/)
+
+
 https://ghaemi.substack.com/p/keeping-up-with-the-literature-read-the-journals-and-the-old-books
 
 https://ghaemi.substack.com/p/a-reading-list-for-psychiatry
@@ -51,6 +58,10 @@ https://www.drps.ed.ac.uk/19-20/dpt/cxphil08017.htm
 https://lifelong-learning.ox.ac.uk/courses/philosophy-psychiatry-and-mental-health
 
 https://disabroad.org/course/philosophy-of-mental-health/
+
+https://www.hemispheric.ai/
+[
+](https://www.oasis-psy.com/)
 
 
 Journals
